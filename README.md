@@ -1,0 +1,4 @@
+TEMPLATE -45 SPEED BOARD LIMIT MATCHED WITH ONE OF THE MILESTONE IMAGE
+![image](https://github.com/user-attachments/assets/82050d47-40c4-41db-86fa-4ec807bb7d24)
+TILTED SAMPLE IMAGE IS ANALYZED AND THE TEMPLATE IS ADJUSTED TO TILT FOR BETTER MATCHING
+![image](https://github.com/user-attachments/assets/af782370-5f0e-4e7f-946c-8e864d4679d0)
